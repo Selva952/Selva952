@@ -1,4 +1,4 @@
-### First step is mandatory when You want reack the Top😎😎
+### First step is mandatory when You want reach the Top😎😎
 
 <!--
 **Selva952/Selva952** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
